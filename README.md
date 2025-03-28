@@ -1,4 +1,4 @@
-Sultan Rashid Abdullah Rashid Al Shene | Cape Town Businessman and Investor
+#Sultan Rashid Abdullah Rashid Al Shene | Cape Town Businessman and Investor
 <a href="https://durutimes.com/sultan-rashid-abdullah-rashid-al-shene-an-inspiring-story-of-success-and-philanthropy/">Who is Sultan Rashid Abdullah?</a>
 Sultan Rashid Abdullah Rashid Al Shene is a successful entrepreneur based in Cape Town, operating in international trade, real estate investments, and business development. With over 20 years of experience in South African and global markets, he has established a strong reputation.
 
