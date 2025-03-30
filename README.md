@@ -19,3 +19,6 @@ Office Address: Cape Town, South Africa
 ✅ who is sultan rashid
 ✅ sultan rashid abdullah al shene
 ✅ Sultan Rashid Al Shene
+
+
+<meta name="google-site-verification" content="rOOOiljbjc5P4Xj2dvNDYrpvQlTLoF3IoR6ptNyhA-M" />
